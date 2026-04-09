@@ -9,3 +9,14 @@ https://www.fr-trapstar.com/veste/
 
 Doudoune Trapsar
 https://www.fr-trapstar.com/doudoune-trapstar/
+
+Ensemble Trapstar
+https://www.fr-trapstar.com/ensemble-trapstar/
+
+# Content Platforms
+
+Medium
+https://medium.com/@uswahsajid12_87335
+
+Blogger
+https://www.blogger.com/blog/posts/579179152363746087
