@@ -16,7 +16,17 @@ https://www.fr-trapstar.com/ensemble-trapstar/
 # Content Platforms
 
 Medium
+
 https://medium.com/@uswahsajid12_87335
 
 Blogger
+
 https://www.blogger.com/blog/posts/579179152363746087
+
+Wordpress
+
+https://fitflair3.wordpress.com/
+
+# Brand Profiles
+
+https://full-zenith-143.notion.site/Trapstar-Clothing-Bold-Identity-in-Street-Fashion-3361862b9d7680d0a879f5a18c192c0f
